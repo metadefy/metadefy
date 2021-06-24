@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @metadefy
+- 👀 I’m interested in Blockchain, NFTs, Defi, Reading, Gaming
+- 🌱 I’m currently learning a lot of things to improve myself, my skills, and beautiful people around me.
